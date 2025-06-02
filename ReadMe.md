@@ -1,0 +1,1 @@
+My name is Urhiofe Favour, I am a product design who is transitioning into Quqlity Assurance and Technical Writing, i have a experience in ux writing which i share on medium. During this bootcamp i hope to gain skills that will improve my writing skills, and leran how to use tools that will make me a better writer.
