@@ -17,3 +17,5 @@ When these European traditions migrated to **North America**, immigrants adapted
 
 Over time, these recipes evolved into the apple pancakes we know and love today—**soft**, **warm**, spiced with **cinnamon**, and served with **syrup** or **sautéed apples**. They remain a beloved comfort food across generations.
 
+## A perfect combination of sweet and savory 
+
